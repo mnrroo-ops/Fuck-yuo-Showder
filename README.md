@@ -1,5 +1,4 @@
-         # Fuck-yuo-Showder
+ # Fuck-yuo-Showder
 
 
-
-           Regards, Noob   
+  Regards, Noob   
